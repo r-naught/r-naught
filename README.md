@@ -4,7 +4,7 @@ Thanks for checking out my profile.
 
 I'm trying to learn too many things at once, but hopefully I can share some cool projects eventually.
 
-My main interests are modding established video games and creating games of my own. Web design is equally interesting to me.
+My main interests are modding video games and creating games of my own. Web design is equally interesting to me.
 
 Not sure I ever want to make a career out of either of those things, but that's more than fine with me.
 
